@@ -2,7 +2,8 @@
 这个人很懒，什么都没有留下❤🐎🦁👨🚗
 ~
 ~
-~
+~![P1112553](https://github.com/user-attachments/assets/5ecb02d3-9b9e-497e-abcc-ce37c657a38a)
+
 ~
 ~
 ~
